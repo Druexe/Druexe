@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Druexe
+- 👀 I’m interested in video games, anime, and old movies (:
+- 🌱 I’m currently learning html
+- 📫 How to reach me: 
+- Instagram - aleksej.vucicevic
+- Facebook - Aleksej Vucicevic
+- Discord - LeksiKyun#3075
